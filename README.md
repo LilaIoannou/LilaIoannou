@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on digital marketing
 - 📫 How to reach me digilandstrategies@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: digital marketing passionist 
+- ⚡ Fun fact: digital marketing Passionist 
 
 <!---
 LilaIoannou/LilaIoannou is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
